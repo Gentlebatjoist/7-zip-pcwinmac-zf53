@@ -1,4 +1,4 @@
-# 
+# Mis à jour 7-Zip préréglages pour Mac OS | Instantané 7-Zip préréglages pour PC Windows. Avec notifications d'alerte et optimisation du registre — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
